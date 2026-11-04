@@ -2,4 +2,4 @@
 職能發展學院
 
 ## 上課連結
-[連結](https://meet.google.com/mxg-ibrb-fyr)
+[https://meet.google.com/mxg-ibrb-fyr](https://meet.google.com/mxg-ibrb-fyr)
