@@ -7,3 +7,8 @@ https://www.youtube.com/watch?v=RgCSLXTqgfE
 https://www.youtube.com/watch?v=8Gw5zFwHuh0
 
 ---
+
+## 2026_11_11_上午
+https://www.youtube.com/watch?v=b8q81DgNehY
+
+---
